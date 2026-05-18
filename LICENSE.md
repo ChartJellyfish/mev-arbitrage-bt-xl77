@@ -1,4 +1,4 @@
-# 
+# professional bot sniper MEV scripts est le meilleur bot sniper MEV scripts avec détection de gemmes à faible capitalisation et trailing-stop. Sécurisé, fiable et optimisé pour les
 
 
 
